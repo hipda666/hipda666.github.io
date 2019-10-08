@@ -1,6 +1,8 @@
 ## Hi-PDA 信息汇总
 
+### 最新地址：www.hi-pda.com
 ### 微信群汇总，添加群主微信号进群
+
 
 
 
@@ -25,7 +27,7 @@ Hipda新闻闲聊群  dm120785878
 
 北京群  tcazqsnxl
 
-油腻中年减肥群 | HansPsy wky19720716
+油腻中年减肥群  HansPsy wky19720716
 
 D版助力群  goodbyetime
 
